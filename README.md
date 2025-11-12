@@ -1,2 +1,0 @@
-# bbangnyang
-bbangnyang
